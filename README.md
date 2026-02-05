@@ -17,7 +17,7 @@ please, do not make axe jokes near our andrew. not at all.
 
 
 
-**how do i know when its an alter whos fronting?**
+**how do i know when its not host whos fronting?**
 
 well, unless you have our sp, you can tell by name, we put "sys" in the middle or start, so you can know better.
 
