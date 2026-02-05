@@ -10,7 +10,11 @@ ___
 c+h only if its indicated! such as putting it in name.
 
 ▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄
-
+ 
+ 
+cud comf . feel free to int always. if we send some whisper, its most probs we wanna int, so pls do for us, we struggle w starting convos alot.
+ 
+ 
 some of us, might not want cosplayers from source to approach, we sometimes indicate that in name but other times not, so be careful. to be more specific, be careful near travis, andrew, ivan, skeet, b. spawn... yeah pretty much it! if youre gonna approach be EXTRA careful and, maybe make sure to ask with another pony thats not from their source if theyre okay with it!
  
 now, we do not like ivandrew ships. do nor ship unless its some kind of, "oh everything went ok", "nothing bad happened" type of au, or if its before everything bad happened. cuddling and all with the ponies its ok, we like it. more if ure friend, pls do!  〣
