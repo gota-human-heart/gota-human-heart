@@ -24,7 +24,9 @@ please, do not make axe jokes near our andrew. not at all.
 well, unless you have our sp, you can tell by name, we put "sys" in the middle or start, so you can know better.
  
 yes, we do have littles, they usually use the pony of a kiwi with an indicator that theyre a little, so yeah!
- 
+
+▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄
+
 basically, make sure to read our names. ALWAYS make sure. i think thats all :)
  
 ___
