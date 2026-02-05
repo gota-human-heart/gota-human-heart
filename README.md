@@ -1,1 +1,2 @@
-![image alt](https://media.discordapp.net/attachments/1148999953717399584/1468042702498300036/23_sin_titulo_20260202161844.png?ex=698537cf&amp;is=6983e64f&amp;hm=03ab186ce59788649d676081d923e3a2879beaad12b74f40f2403abd7b18e4df&amp;=&amp;format=webp&amp;quality=lossless&amp;width=714&amp;height=561%22)
+![image alt](<img src="https://media.discordapp.net/attachments/1148999953717399584/1468042702498300036/23_sin_titulo_20260202161844.png?ex=698537cf&amp;is=6983e64f&amp;hm=03ab186ce59788649d676081d923e3a2879beaad12b74f40f2403abd7b18e4df&amp;=&amp;format=webp&amp;quality=lossless&amp;width=714&amp;height=561" alt="Image"/><img width="714" height="561" alt="image" src="https://github.com/user-attachments/assets/229250fd-03d3-45c0-80b4-8a4a12cbf5b1" />)
+
