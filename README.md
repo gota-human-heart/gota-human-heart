@@ -23,4 +23,4 @@ basically, make sure to read our names. ALWAYS make sure. i think thats all :)
 ___
 
 
-   _" Because I love you. Or, I loved before, but now I hate you . "
+   _" Because I love you. Or, I loved before, but now I hate you . "_
