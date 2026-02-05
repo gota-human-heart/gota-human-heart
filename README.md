@@ -1,2 +1,3 @@
-![image alt](<img width="714" height="561" alt="image" src="https://github.com/user-attachments/assets/02f7d217-4b8e-4ca6-a600-e486aa78eb7d" />)
+![image alt](<img src="https://media.discordapp.net/attachments/1148999953717399584/1468042702498300036/23_sin_titulo_20260202161844.png?ex=698537cf&amp;is=6983e64f&amp;hm=03ab186ce59788649d676081d923e3a2879beaad12b74f40f2403abd7b18e4df&amp;=&amp;format=webp&amp;quality=lossless&amp;width=714&amp;height=561" alt="Image"/><img width="714" height="561" alt="image" src="https://github.com/user-attachments/assets/80b5b92e-fa52-4335-8682-6be5c21f43da" />)
+
 
