@@ -33,3 +33,6 @@ ___
   
  
   ╭  _" Because I love you. Or, I loved before, but now I hate you . "_
+
+<img width="714" height="561" alt="image" src="https://github.com/user-attachments/assets/39e4663a-5faa-4f6f-b90f-a3751d9fd40d" />
+
