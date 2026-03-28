@@ -28,7 +28,7 @@ $\text{\color{#542020} approach with a cosplay, check the name first for any kin
   <p align="center">
 $\text{\color{#542020} and even if they dont have it, please ask if its okay to approach with one before doing so.}$
 <p align="center">
-$\text{\color{#542020} specific: no axe jokes near andew , no dead andrew ponies near ivan , fandomDNI with skeet at all;doubles and sourcemates ask to , no doubles}$
+$\text{\color{#542020} specific: no axe jokes near andrew , no dead andrew ponies near ivan , fandomDNI with skeet at all;doubles and sourcemates ask to , no doubles}$
   <p align="center">
 $\text{\color{#542020} around booker , fandomDNI around travis .}$
 <p align="center">
