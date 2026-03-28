@@ -22,9 +22,15 @@ $\text{\color{#542020} we draw. feel free to ask to see some of our drawings, al
 <img src="https://media.discordapp.net/attachments/1148999953717399584/1487353173948760134/Tumblr_l_1048970633035681.gif?ex=69c8d516&amp;is=69c78396&amp;hm=7ee1464e9f5a3c6d1fa1495001a64e8d2aa6d4d74619fcef69176c2dec0b1acf&amp;=">
 
   <p align="center">
-$\text{\color{#542020} please, be extremely careful around our fictives, most of them are not source separated amd/or get triggered easily by it. please, if youre gonna approach with a cosplay, check the name first for any kind of fandomdni, and even if they dont have it, please ask if its okay to approach with one before doing so.}$
+$\text{\color{#542020} please, be extremely careful around our fictives, most of them are not source separated amd/or get triggered easily by it. please, if youre gonna}$
+  <p align="center">
+$\text{\color{#542020} approach with a cosplay, check the name first for any kind of fandomdni,}$
+  <p align="center">
+$\text{\color{#542020} and even if they dont have it, please ask if its okay to approach with one before doing so.}$
 <p align="center">
-$\text{\color{#542020} specific: no axe jokes near andew , no dead andrew ponies near ivan , fandomDNI with skeet at all;doubles and sourcemates ask to , no doubles around booker , fandomDNI around travis .}$
+$\text{\color{#542020} specific: no axe jokes near andew , no dead andrew ponies near ivan , fandomDNI with skeet at all;doubles and sourcemates ask to , no doubles}$
+  <p align="center">
+$\text{\color{#542020} around booker , fandomDNI around travis .}$
 <p align="center">
 $\text{\color{#571d1d} were currently in a rls (qppsys), but still, be careful with mentions of rls .}$
 <p align="center">
