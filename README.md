@@ -38,7 +38,7 @@
   
 <p align="center"> $\text{\color{#9c3333} will add a strawpage with some of our drawings here later, okay?}$
   
-　　　　　　　　　[oohhh sign meee. you know you want toooo. sign me. sign me NOW! siggnnn meee.](https://chronicalzataa.atabook.org/)
+　　　　　　　　　　[oohhh sign meee. you know you want toooo. sign me. sign me NOW! siggnnn meee.](https://chronicalzataa.atabook.org/)
 
 <p align="center"> <img src="https://media.discordapp.net/attachments/1148999953717399584/1502798930402869358/1ea39414ac9496ba01e7431fd0052694.jpg?ex=6a010611&amp;is=69ffb491&amp;hm=dd23a54a02cc79052db228098f8671fedca391c29770feef698301a6605c6dd9&amp;=&amp;format=webp&amp;width=535&amp;height=457" alt="Image"/>
 
