@@ -3,6 +3,8 @@
 <p align="center"> <img src="https://media.discordapp.net/attachments/1148999953717399584/1502798930662920362/0b8ecfeac5dbbdee18fe255c108141c1.jpg?ex=6a010611&amp;is=69ffb491&amp;hm=909db00d5970294c168895e74c4f8eee591abf5fe7e95c4066f27963baf85e49&amp;=&amp;format=webp" alt="Image"/>
   
 <p align="center"> $\text{\color{#7d4141} hi, we're the chronical system. or chronic, for short.}$
+  
+　　　　　　　　[It's times like this I like to forget who I am. Actually, it's more like I have never had the choice](https://youtu.be/e3ADI8ZzKx8?si=y146GeqXW5uc1y15)
 <p align="center"> $\text{\color{#7d4141} host goes by diff names, such as}$
 <p align="center"> $\text{\color{#7d4040} ander, skeet, sylver, travis, ivan, etc.}$
 <p align="center"> $\text{\color{#7d4040} transmale, omni, acoromantic, quepromantic. suspected nebularomantic.}$
