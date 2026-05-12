@@ -1,4 +1,4 @@
-<p align="center"> $\text{\color{#c71818} last updated on : 5/9/26}$
+<p align="center"> $\text{\color{#c71818} last updated on : 5/12/26}$
 
 <p align="center"> <img src="https://media.discordapp.net/attachments/1148999953717399584/1502798930662920362/0b8ecfeac5dbbdee18fe255c108141c1.jpg?ex=6a010611&amp;is=69ffb491&amp;hm=909db00d5970294c168895e74c4f8eee591abf5fe7e95c4066f27963baf85e49&amp;=&amp;format=webp" alt="Image"/>
   
@@ -14,10 +14,7 @@
   
 <p align="center"> $\text{\color{#823e3e} our bday is on oct 8th}$
 <p align="center"> $\text{\color{#823e3e} bodily 14, mexican.}$
-  
-　　　　　　　　　　　　　　　　　　　　　　[qppsys](https://github.com/acumentrepanation) $\text{\color{#823e3e} they're so cool, we promise.}$
-<p align="center"> $\text{\color{#8a1717} host and noli are happily taken, dont flirt with them.}$
-<p align="center"> $\text{\color{#853c3c} basic dni ; -13, 20+}$
+  <p align="center"> $\text{\color{#853c3c} basic dni ; -13, 20+}$
 
 <p align="center"> <img src="https://media.discordapp.net/attachments/1148999953717399584/1502802959715663912/420_sin_titulo_20260509154108.png?ex=6a0109d2&amp;is=69ffb852&amp;hm=7112cc5fd925feff85a5c0fe70c150fd9a7016a1f280e6a8b5dbb97999663377&amp;=&amp;format=webp&amp;quality=lossless" alt="Image"/>
 
