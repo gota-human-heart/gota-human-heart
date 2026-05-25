@@ -1,4 +1,4 @@
-<p align="center"> $\text{\color{#c71818} last updated on : 5/13/26}$
+<p align="center"> $\text{\color{#c71818} last updated on : 5/24/26}$
 
 <p align="center"> <img src="https://media.discordapp.net/attachments/1148999953717399584/1502798930662920362/0b8ecfeac5dbbdee18fe255c108141c1.jpg?ex=6a010611&amp;is=69ffb491&amp;hm=909db00d5970294c168895e74c4f8eee591abf5fe7e95c4066f27963baf85e49&amp;=&amp;format=webp" alt="Image"/>
   
@@ -33,7 +33,6 @@
   
  　　　　　　　　　　　　　　　　　　　　　　 [andrew](https://github.com/YouLeftWoundsThatHitTheBone) $\text{\color{#7d4141} ,}$ [host](https://github.com/itzskeetzers662) $\text{\color{#7d4141} ,}$ [devyn](https://github.com/TheFunnyThingIs) $\text{\color{#7d4141} ,}$ [micha](https://github.com/michaamazing-2)
   
- 　　　　　　　　　　　　　　　　　　　 [want to see some of our drawings? click me!](https://chronicsystemdrawings.straw.page)  
                         
 　　　　　　　　　　[oohhh sign meee. you know you want toooo. sign me. sign me NOW! siggnnn meee.](https://chronicalzataa.atabook.org/)
 
