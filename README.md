@@ -31,7 +31,7 @@
 <p align="center"> $\text{\color{#993636} c*h friendly unless we indicate not to (by dni's on our names.).}$
 <p align="center"> $\text{\color{#9c3333} our headmates githubs.. incluiding host's alt:}$
   
- 　　　　　　　　　　　　　　　　　　　　　　 [andrew](https://github.com/YouLeftWoundsThatHitTheBone) $\text{\color{#7d4141} ,}$ [host](https://github.com/itzskeetzers662) $\text{\color{#7d4141} ,}$ [devyn](https://github.com/TheFunnyThingIs) $\text{\color{#7d4141} ,}$ [micha](https://github.com/michaamazing-2)
+ 　　　　　　　　　　　　　　　　　　　　　　 $\text{\color{#7d4141} ,}$ [host](https://github.com/itzskeetzers662) $\text{\color{#7d4141} ,}$ [devyn](https://github.com/TheFunnyThingIs) $\text{\color{#7d4141} ,}$ [micha](https://github.com/michaamazing-2)
   
                         
 　　　　　　　　　　[oohhh sign meee. you know you want toooo. sign me. sign me NOW! siggnnn meee.](https://chronicalzataa.atabook.org/)
