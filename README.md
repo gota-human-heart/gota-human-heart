@@ -10,7 +10,7 @@
 
 </div>
 <div align="center">
-<details>$\text{\color{#c71818} hii @mutiIator slash gayhoe.}$<summary>‎ $\text{\color{#c71818}𓏽ִ 𔘓}$</summary></details>
+<details>$\text{\color{#c71818} hii @mutiIator slash z slash postman lovah!!! , haii @treatmelikeurp3t slash sodite slash EVIL!!!! /j}$<summary>‎ $\text{\color{#c71818}𓏽ִ 𔘓}$</summary></details>
 
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
