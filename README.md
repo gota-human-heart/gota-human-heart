@@ -3,17 +3,26 @@
 
 
 <p align="center"> <a href="https://youtu.be/e3ADI8ZzKx8?si=y146GeqXW5uc1y15">It's times like this I like to forget who I am. Actually, it's more like I have never had the choice</a> ㅤ <a 
+                                                                                                                                                                                           
 　
 
 <p align="center"> <img src="https://files.catbox.moe/f6jbw5.png" alt="Image"/>
 
 
+
 <p align="center"> <a href="https://chronicalzataa.atabook.org/">i yearn to be signed.</a> <a>ㅤㅤㅤ<a href="https://chronicalsys.straw.page/">click 4 info about us.</a> <a>
+
+<p align="center"> <img src="https://files.catbox.moe/dkk7t4.png" alt="Image"/>
 
 
 </div>
 <div align="center">
 <details>$\text{\color{#c71818} hii @mutiIator slash z slash postman lovah!!! , haii @treatmelikeurp3t slash sodite slash EVIL!!!! /j}$<summary>‎ $\text{\color{#c71818}𓏽ִ 𔘓}$</summary></details>
+
+
+<p align="center"> <img src="https://files.catbox.moe/krfc26.png" alt="Image"/>
+
+
 
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
