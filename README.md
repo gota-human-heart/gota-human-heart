@@ -12,6 +12,9 @@
 
 <p align="center"> <a href="https://chronicalzataa.atabook.org/">i yearn to be signed.</a> <a>ㅤㅤㅤ<a href="https://chronicalsys.straw.page/">click 4 info about us.</a> <a>
 
+
+
+
 <p align="center"> <img src="https://files.catbox.moe/dkk7t4.png" alt="Image"/>
 
 
@@ -20,7 +23,13 @@
 <details>$\text{\color{#c71818} hii @mutiIator slash z slash postman lovah!!! , haii @treatmelikeurp3t slash sodite slash EVIL!!!! /j}$<summary>‎ $\text{\color{#c71818}𓏽ִ 𔘓}$</summary></details>
 
 
-<p align="center"> <img src="https://files.catbox.moe/krfc26.png" alt="Image"/>
+<p align="center"> <img src="https://files.catbox.moe/yt70d3.png" alt="Image"/>
+
+
+
+</div>
+<div align="center">
+<details>$\text{\color{#c71818} (image) ble}$<summary>‎ $\text{\color{#c71818}??}$</summary></details>
 
 
 
