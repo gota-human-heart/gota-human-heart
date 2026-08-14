@@ -1,12 +1,11 @@
 <p align="center"> $\text{\color{#573939} (better viewed on computer)}$
-  
-<p align="center"> $\text{\color{#c71818} under rmk fixing this soon.}$
+
 
 
 <p align="center"> <a href="https://youtu.be/e3ADI8ZzKx8?si=y146GeqXW5uc1y15">It's times like this I like to forget who I am. Actually, it's more like I have never had the choice</a> ㅤ <a 
 　
 
-<p align="center"> <img src="https://files.catbox.moe/s70s5n.webp" alt="Image"/>
+<p align="center"> <img src="https://files.catbox.moe/f6jbw5.png" alt="Image"/>
 
 
 <p align="center"> <a href="https://chronicalzataa.atabook.org/">i yearn to be signed.</a> <a>ㅤㅤㅤ<a href="https://chronicalsys.straw.page/">click 4 info about us.</a> <a>
