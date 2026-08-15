@@ -24,7 +24,7 @@
 
 </div>
 <div align="center">
-<details>$\text{\color{#c71818} hii @mutiIator little otter/shark postman and elysia lover! , haii @treatmelikeurp3t slash sodite slash nashatra's fan slash EVIL!!!! /j}$<summary>‎ $\text{\color{#c71818}𓏽ִ}$</summary></details>
+<details>$\text{\color{#c71818} hii @mutiIator little otter/shark postman and elysia lover! , haii @straxesoda slash sodite slash nashatra's fan slash EVIL!!!! /j}$<summary>‎ $\text{\color{#c71818}𓏽ִ}$</summary></details>
 
 
 <p align="center"> <img src="https://files.catbox.moe/tah0p3.webp" alt="Image"/>
