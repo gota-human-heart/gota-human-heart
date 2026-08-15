@@ -31,7 +31,7 @@
 
 
 
-<p align="center"> <a href="https://rentry.co/chronicalsgallery">gallery</a> <a>
+<p align="center"> <a href="https://rentry.co/chronicalsgallery">ㅤgalleryㅤ</a> <a>
 
 ㅤㅤㅤ
 ㅤㅤㅤ
