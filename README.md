@@ -17,7 +17,7 @@
 ㅤㅤㅤ
 ㅤㅤㅤ
 
-<p align="center"> <a href="https://chronicalzataa.atabook.org/">i yearn to be signed.</a> <a>ㅤㅤㅤ<a href="https://chronicalsys.straw.page/">click 4 info about us.</a> <a>
+<p align="center"> <a href="https://chronicalzataa.atabook.org/">i yearn to be signed.</a> <a>ㅤㅤㅤ<a href="https://chronicalnuisance.straw.page/">click 4 info about us.</a> <a>
 
 
 
